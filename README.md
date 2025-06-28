@@ -1,1 +1,1 @@
-# leak-csgo
+leak nl gs fata prim strusss.
